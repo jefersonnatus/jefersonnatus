@@ -12,6 +12,6 @@ jeferson.natus@escola.pr.gov.br
 
 🇧🇷 jefersonnatus
 
-![](https://media.tenor.com/AvPqyreIUaoAAAAM/brazino-jogo-da-galera.gif)
 
 
+![](https://media.tenor.com/lc2JIBLBdIYAAAAM/tracteur-truck.gif)
